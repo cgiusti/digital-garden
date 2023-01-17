@@ -15,9 +15,5 @@ Oregon State University
 Office: 282A Kidder Hall<br>
 Phone: (541) 737-7427  <br>
 Email: giustic - at - oregonstate - dot - edu  
-  
-Oregon State University <br>
-Department of Mathematics<br>
-Newark, DE 19716, USA  
-​  
+ ​  
 <a class="internal-link" href="/assets/Giusti_CV_Jan_23.pdf">Curriculum Vitae</a>
