@@ -13,8 +13,10 @@ Nikolas (Niko) Schonsheck
 
 #### PhD Students
 
+Jackson Holm<br>
 Melinda Kleczynski<br>
 Chung-Ping Lai<br>
+Jonathan McCollum<br>
 Giuliamaria (Giulia) Menara<br>
 Jerome Roehm
 
