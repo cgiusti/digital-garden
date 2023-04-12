@@ -14,6 +14,6 @@ Oregon State University
   
 Office: 282A Kidder Hall<br>
 Phone: (541) 737-7427  <br>
-Email: giustic - at - oregonstate - dot - edu  
+Email: chad.giusti - at - oregonstate - dot - edu  
  ​  
 <a class="internal-link" href="/assets/Giusti_CV_Jan_23.pdf">Curriculum Vitae</a>
